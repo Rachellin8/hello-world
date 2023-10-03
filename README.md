@@ -13,4 +13,4 @@ My pastimes include:
 
 Thanks for following along on my experience!
 
-![Kayaking with my dog](/Users/Rachelle/Desktop/Kayaking.jpg "Sevier River Kayak Trip")
+
